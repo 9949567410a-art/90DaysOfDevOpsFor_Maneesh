@@ -1,0 +1,1 @@
+I have completed the linux in oct 10 by maneesh
