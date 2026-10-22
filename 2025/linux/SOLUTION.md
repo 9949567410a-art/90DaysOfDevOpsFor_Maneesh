@@ -1,1 +1,1 @@
-I have completed the linux in oct 10 by maneesh
+I have completed the linux in oct 10
